@@ -1,3 +1,3 @@
 # konflikt
 
-lõhume ära, xd 
+Lõhume täitsa tükkideks?, xd
