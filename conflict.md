@@ -1,0 +1,3 @@
+# konflikt
+
+lõhume ära, xd 
