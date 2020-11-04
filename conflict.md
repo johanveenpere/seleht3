@@ -1,3 +1,3 @@
 # konflikt
 
-lõhume ära, xd 
+üritan lõhkuda, vaatan kas õnnestub
